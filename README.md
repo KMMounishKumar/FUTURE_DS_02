@@ -84,11 +84,11 @@ To track and visualize social media ad performance and generate actionable marke
 
 🙋‍♀️ Author
 
-**Name:** Nitya Santoshini  
+**Name:** Mounish Kumar K M
 **Tools Used:** Power BI, Excel, Canva  
 
 📬 Contact
 
 Feel free to connect or reach out if you have suggestions or questions!  
-📧 Email: nsanthoshini7@gmail.com 
-📱 LinkedIn: https://www.linkedin.com/in/nitya-santoshini-02186230a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app 
+📧 Email: mounishkm997@gmail.com
+📱 LinkedIn: https://www.linkedin.com/in/mounish-kumar-k-m-05a266297/
